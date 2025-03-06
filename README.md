@@ -1,0 +1,1 @@
+# Sotuvlarni50-gaoshirish
